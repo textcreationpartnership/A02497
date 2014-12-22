@@ -35,9 +35,10 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A sermon preached at St Maries in Oxford vpon Tuesday in Easter vveeke, 1617 Concerning the abuses o
+
 #####Body#####
-A sermon preached at St Maries in Oxford vpon Tuesday in Easter vveeke, 1617 Concerning the abuses o
+2. PETER. 3. 16.Which the vnlearned and vnstable wreſt, as they doe
+the other Scriptures, vnto their
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
